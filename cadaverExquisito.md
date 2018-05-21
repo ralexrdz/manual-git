@@ -8,3 +8,4 @@ Y despues sacaron el curado
 esta historia esta de weba y mejor que escriba otro
  chale banda mejor saque las tortas de pastor  
 Todos votaron por AMLO
+A la mañana siguiente, Pepe no estaba...
