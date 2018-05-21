@@ -8,3 +8,4 @@ Y despues sacaron el curado
 esta historia esta de weba y mejor que escriba otro
  chale banda mejor saque las tortas de pastor  
 Todos votaron por AMLO
+pero el fraude ya estaba fraguado. cAnaya pasó bascula con su costal. Los chicos lloraron y decidieron irse por las chelas
