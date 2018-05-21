@@ -18,3 +18,4 @@ y los programadores, relajados, relajados, relajados
  mientras tanto llega deadpool y mata al mas relajado relajado!
 como funciona estoo que alguien me explique
 andamos en las mismas compaye
+hay que estudiar mucho
