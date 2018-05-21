@@ -13,3 +13,4 @@ pero el fraude ya estaba fraguado. cAnaya pasó bascula con su costal. Los chico
 
 
 para prepararse y ver el mundial
+y los programadores, relajados, relajados, relajados
