@@ -6,3 +6,4 @@ el pepe puso las cocas
 y jorge los videos juegos
 Y despues sacaron el curado
 esta historia esta de weba y mejor que escriba otro
+XQla banda se aplico 
