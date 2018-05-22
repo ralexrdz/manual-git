@@ -10,3 +10,4 @@ XQla banda se aplico
 o eso creían porque no habían entendido nada
 esta banda no se aaplica amlover
 
+ la historia mejoro XD, XD2
