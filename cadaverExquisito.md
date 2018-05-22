@@ -8,3 +8,5 @@ Y despues sacaron el curado
 esta historia esta de weba y mejor que escriba otro
 XQla banda se aplico 
 o eso creían porque no habían entendido nada
+esta banda no se aaplica amlover
+
