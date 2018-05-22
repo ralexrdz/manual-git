@@ -1,8 +1,8 @@
 Había una vez
 un grupo de desarrolladores de nada
 
-no aparece nada en los comits
 no se que fue lo que paso que se desmayo
  hola ya estoy agregando algo a mesa 3
  hola ya estoy agregando algo a mesa 3
+sigue sin aparecer nada en los comits
 
