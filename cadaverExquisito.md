@@ -20,3 +20,4 @@ como funciona estoo que alguien me explique
 andamos en las mismas compaye
 hay que estudiar mucho
  tic, tac, tic tac, me toco cerrar la historia con tortas, politica y al final nadie entendio  el final.  estudien mucho Git
+continuará?
